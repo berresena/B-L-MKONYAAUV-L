@@ -1,0 +1,2 @@
+# B-L-MKONYAAUV-L
+LİSE
